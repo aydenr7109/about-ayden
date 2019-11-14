@@ -4,7 +4,7 @@ aydenr7109@hstat.org
 
 ## I go to [High School of Telecommunication Arts and Technology](http://www.hstat.org/)
 
-I grew up in Staten Island since I was one and my ethnicity is Puerto Rican
+**I grew up in Staten Island since I was one and my ethnicity is Puerto Rican**
 
 ### _Periods_
 
