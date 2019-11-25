@@ -30,3 +30,4 @@ You can find out about the work i've done at [github.com](https://github.com/ayd
     * Super Smash Bros Ultimate
     * Super Mario Galaxy
 
+reviewed by antonio silva
